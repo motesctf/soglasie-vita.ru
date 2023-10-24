@@ -1,0 +1,1 @@
+# soglasie-vita.ru\n
